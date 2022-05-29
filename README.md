@@ -6,4 +6,4 @@ ALL CREDIT GOES TO : ZIMAZANG
 Link to the original resource : https://community.playstarbound.com/resources/the-nebulites.3173 
 
 
-Steam: https://steamcommunity.com/sharedfiles/filedetails/?id=1333429404)
+Steam: https://steamcommunity.com/sharedfiles/filedetails/?id=1333429404
